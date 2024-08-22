@@ -6,3 +6,4 @@
 - 😄 Pronouns: ...![OIP (1)](https://github.com/user-attachments/assets/6e162532-564d-418e-8122-40035a89b5ba)!
 - 
 ![OIP (2)](https://github.com/user-attachments/assets/f870083a-9a57-434e-8a02-87070e12fd42)
+[Caratula_lc-ab (2).pdf](https://github.com/user-attachments/files/16703289/Caratula_lc-ab.2.pdf)

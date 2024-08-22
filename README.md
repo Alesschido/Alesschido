@@ -3,14 +3,6 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
-- 😄 Pronouns: ...![OIP (1)](https://github.com/user-attachments/assets/6e162532-564d-418e-8122-40035a89b5ba)![OIP (1)](https://github.com/user-attachments/assets/718e3f5f-207c-413c-a9ac-5f426b90a4cc)
-
-
-- ⚡ Fun fact: ...
-
-<!---
-Alesschido/Alesschido is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.![OIP (1)](https://github.com/user-attachments/assets/64600d89-6188-4845-b917-dfbb08aafc0d)
-![OIP (2)](https://github.com/user-attachments/assets/92245bae-5bdf-404d-b33f-a9b0161eb708)
-
-You can click the Preview link to take a look at your changes.
---->
+- 😄 Pronouns: ...![OIP (1)](https://github.com/user-attachments/assets/6e162532-564d-418e-8122-40035a89b5ba)!
+- 
+![OIP (2)](https://github.com/user-attachments/assets/f870083a-9a57-434e-8a02-87070e12fd42)
